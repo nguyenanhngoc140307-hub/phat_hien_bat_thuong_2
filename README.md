@@ -1,1 +1,0 @@
-# phat_hien_bat_thuong_2
